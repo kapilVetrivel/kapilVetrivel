@@ -2,7 +2,7 @@
 - 👀 I’m interested in Cars, Design & Thermal
 - 🎓 Engineering Management grad. student at Tufts
 - 🌱 I’m currently learning about Customer Discovery, AI Agents, and Robotics.
-- 💞️ I’m looking to collaborate on anything thats new to me
+- 💞️ I like hiking (not pro), driving, and some live orchestra (may be I play a brass instrument one day).
 
 Stuffs I did over time:
 
